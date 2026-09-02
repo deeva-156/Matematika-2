@@ -1,2 +1,2 @@
-# Matematika-2
-Adelaide Nadeeva Setyatmaja Lumban Gaol 
+# adelaide Nadeeva Setyatmaja Lumban Gaol.
+Hobi saya adalah belajar dan bermain game.
